@@ -1,0 +1,1 @@
+Akumah masih pemula 🙏
